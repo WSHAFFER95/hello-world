@@ -1,4 +1,4 @@
 # hello-world
 Placeholder description for baby example project
 
-The vision was merely terrifying, not enough to raise my hopes of horror again. I watched the antics of the gremlins wearily, as they phased in and out of existence, shrieking and chanting, sticking out their hideous tongues in a parody of song.
+I liked the piece of writing I had here before, but it was a little too weird so I'm reverting it.
